@@ -1,4 +1,10 @@
 # htn.sh1t:88
+## 项目的主导者已经道歉
+![Image_1708879536871](https://github.com/M3351AN/htn.sh1t/assets/65479796/4f23e6e1-25e9-4b0c-b4f5-8c4c8e180839)
+![Image_1708879538889](https://github.com/M3351AN/htn.sh1t/assets/65479796/e6c3807d-d95b-475c-a63c-4d15c0c307fa)
+![Image_1708879544048](https://github.com/M3351AN/htn.sh1t/assets/65479796/6d5baf52-5bc2-4ce6-a3cb-1beca8309439)
+
+## 归档
 reveal niPpOn hEcK hatsune.today:88
 揭露曰本太神挂 hatsune.today:88的真相
 ![Image_1708876130876](https://github.com/M3351AN/hsn.sh1t/assets/65479796/3702020f-2477-430d-a45f-2813228962c2)
