@@ -37,10 +37,7 @@ reveal niPpOn hEcK hatsune.today:88
 ![Screenshot_2024-02-25-22-58-00-245_tv danmaku bili](https://github.com/M3351AN/htn.sh1t/assets/65479796/40ffd1d9-3157-431f-8e73-a752999fc0aa)
 网站是他搭的，这是这位诈骗奇才难得的一句实话
 
-不过，这位诈骗奇才是时候复习初中英语了
-![Image_1708876043866](https://github.com/M3351AN/htn.sh1t/assets/65479796/79a54b42-627e-498a-a97e-c21211007908)
-
-之后，随着对loader的分析，我们发现了更多有趣的事实
+但在之后，随着对loader的分析，我们发现了更多有趣的事实
 
 似乎日本大神很喜欢中国，也是一个中文高手，他的系统语言是简体中文![Image_1708874048950](https://github.com/M3351AN/htn.sh1t/assets/65479796/cb8388f6-798a-4192-8a31-c89e3d2012ae)
 
