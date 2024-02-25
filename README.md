@@ -1,4 +1,4 @@
-# hsn.sh1t
+# htn.sh1t:88
 reveal niPpOn hEcK hatsune.today:88
 揭露曰本太神挂 hatsune.today:88的真相
 ![Image_1708876130876](https://github.com/M3351AN/hsn.sh1t/assets/65479796/3702020f-2477-430d-a45f-2813228962c2)
